@@ -15,9 +15,9 @@ I specialize in developing mobile applications and exploring creative solutions 
 ## How to Connect
 Feel free to reach out to me for app development inquiries or collaborations. Let's build something amazing together!
 - 📧 Email:
-  aanya joshi2004@gmail.com
+  aanyajoshi2004@gmail.com
 - 📱 LinkedIn:
-  https://github.com/Aanya-23
+  https://www.linkedin.com/in/aanya-joshi-16b47024a
 
 
 ## Collaboration
